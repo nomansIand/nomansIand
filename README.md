@@ -7,7 +7,7 @@
     
    [A](https://www.youtube.com/watch?v=UPJoZm49Ibk)BOUT ME <img src="https://github.com/user-attachments/assets/d5db946a-e85d-4926-b9fe-b082a9fda201"> <br />
   i got a couple of names i use, but i mostly go by Kal, or Ciel. <br />
-18 y/o proshipper. i use mirror(ed) pronouns! <br />
+18 y/o proshipper. i use mirror pronouns! <br />
   i'm mostly idle in the 18+ server, **whisper 2 interact**. <br />
   **fiction ≠ reality**. minors stay a light year away from me. i hide freely. <br />
   DNI if you're sensitive to pixels, sexual jokes, if you're braindead etc <br />
