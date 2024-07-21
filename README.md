@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=sednoseterces&color=6321de&style=plastic&label=(っ'ヮ'c)++++&abbreviated=true) <img src="https://github.com/user-attachments/assets/89206af5-eee2-4631-9406-98f4af8e6ad2" height=20 weight=50>
+![](https://komarev.com/ghpvc/?username=sednoseterces&color=6321de&style=plastic&label=(っ'ヮ'c)++++) <img src="https://github.com/user-attachments/assets/89206af5-eee2-4631-9406-98f4af8e6ad2" height=20 weight=50>
 <div align="center"> <br /> <br />
   <img src="https://github.com/user-attachments/assets/f5456a01-f99b-412c-a45b-74a62b58a46c" height=130 width=150> <br />
   <img src="https://github.com/user-attachments/assets/30cbfb8f-84c1-4915-81de-837e0f11d887" height=200 width=450> <br />
