@@ -5,10 +5,9 @@
   <img src="https://github.com/user-attachments/assets/30cbfb8f-84c1-4915-81de-837e0f11d887" height=200 width=450> <br />
   <img src="https://github.com/user-attachments/assets/335c7d97-ee11-488a-97b2-641f6cfce260"
     
-   [A](https://www.youtube.com/watch?v=UPJoZm49Ibk)BOUT ME <br />
+   [A](https://www.youtube.com/watch?v=UPJoZm49Ibk)BOUT ME <img src="https://github.com/user-attachments/assets/d5db946a-e85d-4926-b9fe-b082a9fda201"> <br />
   i got a couple of names i use, but i mostly go by Kal, or Ciel. <br />
-  <img src="https://github.com/user-attachments/assets/af0ad96e-38ff-4f09-adee-0ce95f38a961" width="20" height="20" /><img src="https://github.com/user-attachments/assets/f5961e47-b880-4d27-922b-a4b09c14352f" width="20" height="20" />
- y/o proshipper. i use mirror(ed) pronouns! <br />
+18 y/o proshipper. i use mirror(ed) pronouns! <br />
   i'm mostly idle in the 18+ server, **whisper 2 interact**. <br />
   **fiction ≠ reality**. minors stay a light year away from me. i hide freely. <br />
   DNI if you're sensitive to pixels, sexual jokes, if you're braindead etc <br />
