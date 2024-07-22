@@ -5,7 +5,7 @@
   <img src="https://github.com/user-attachments/assets/30cbfb8f-84c1-4915-81de-837e0f11d887" height=200 width=450> <br />
   <img src="https://github.com/user-attachments/assets/335c7d97-ee11-488a-97b2-641f6cfce260"
     
-   [A](https://www.youtube.com/watch?v=UPJoZm49Ibk)BOUT ME <img src="https://github.com/user-attachments/assets/d5db946a-e85d-4926-b9fe-b082a9fda201"> <br />
+   ABOUT ME <img src="https://github.com/user-attachments/assets/d5db946a-e85d-4926-b9fe-b082a9fda201"> <br />
   i got a couple of names i use, but i mostly go by Kal, or Ciel. <br />
 18 y/o proshipper. i use mirror pronouns. <br />
   i'm mostly idle in the 18+ server, **whisper 2 interact**. <br />
