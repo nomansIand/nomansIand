@@ -4,6 +4,7 @@
 [my retrospring](https://retrospring.net/@applepox) <br />
 #
 <div align="center">
-<img src="https://github.com/user-attachments/assets/b772e5fa-2514-4304-8695-0e122098fb74" height=320 weight=320>
+<img src="https://github.com/user-attachments/assets/b772e5fa-2514-4304-8695-0e122098fb74" height=320 weight=320> <br />
+<sub> mike and i<3 </sub>
 </div>
 
