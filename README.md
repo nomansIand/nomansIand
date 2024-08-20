@@ -4,6 +4,6 @@
 [my retrospring](https://retrospring.net/@applepox) <br />
 #
 <div align="center">
-<img src="https://github.com/user-attachments/assets/b772e5fa-2514-4304-8695-0e122098fb74">
+<img src="https://github.com/user-attachments/assets/b772e5fa-2514-4304-8695-0e122098fb74" height=350 weight=350>
 </div>
 
