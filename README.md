@@ -6,7 +6,7 @@
 <div align="center">
 <img src="https://github.com/user-attachments/assets/b772e5fa-2514-4304-8695-0e122098fb74" height=320 weight=320> <br />
 <sub> mike and i<3 </sub> <br />
-  ‎     ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎‎ ႔ ႔ ‎ ‎ ‎ ᡣ𐭩 <br />
-ᠸ^ ^  𐅠 
+  ‎     ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ႔ ႔ ‎ ‎ ‎ ᡣ𐭩 <br />
+₍ ᐢ. .ᐢ₎ᠸ^ ^  𐅠 
 </div>
 
