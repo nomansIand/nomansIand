@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sednoseterces&color=3f9ead&style=for-the-badge&label=fishies++++) <img src="https://github.com/user-attachments/assets/74a27605-44d2-441e-98e5-3ba3c283a50a" height=50 weight=150> <br />
+![](https://komarev.com/ghpvc/?username=sednoseterces&color=3f9ead&style=for-the-badge&label=fishies++++) <img src="https://github.com/user-attachments/assets/9f742659-0f6d-4237-b41f-37c6a5e2be31" height=50 weight=150> <br />
 <div align="center">
   
 # grab me by the ghost and suck my eyes – i don't believe in animals, milk comes from the trees!
