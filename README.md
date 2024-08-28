@@ -7,7 +7,7 @@
 <img src="https://github.com/user-attachments/assets/f16c39e8-e74c-4ec2-9c14-19d2b65de579"> <br /> 
 <div align="center">
   
- [my retrospring](https://retrospring.net/@applepox) ✧ [pronouns](https://pronouns.cc/@yesmylord) ✧ [rentry (wip)](https://rentry.co/applepox) <br />
+ [my retrospring](https://retrospring.net/@applepox) 𔓕 [pronouns](https://pronouns.cc/@yesmylord) 𔓕 [rentry (wip)](https://rentry.co/applepox) <br />
  ₍𝄐𓂏𝄐₎ talk 2 me about the roblox game pressure ty ^_^
 </div>
 
