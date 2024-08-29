@@ -9,7 +9,7 @@
   
  [my retrospring](https://retrospring.net/@applepox) 𔓕 [pronouns](https://pronouns.cc/@yesmylord) 𔓕 [rentry (wip)](https://rentry.co/applepox) <br />
  ₍𝄐𓂏𝄐₎ talk 2 me about the roblox game pressure ty ^_^ <br />
- <img src="https://github.com/user-attachments/assets/d38edd7e-23d2-4824-becb-dc62bafd8f6e" height=50 width=50>
+ <img src="https://github.com/user-attachments/assets/87100a7f-e3b3-4b8d-8a74-ca3a96bc916b" height=50 width=50>
 </div>
 
 #
