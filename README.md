@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sednoseterces&color=FFD35A&style=for-the-badge&label=fujoshis++++) <img src="https://github.com/user-attachments/assets/9f742659-0f6d-4237-b41f-37c6a5e2be31" height=50 weight=150> <br /> 
+![](https://komarev.com/ghpvc/?username=sednoseterces&color=FFD35A&style=for-the-badge&label=my+fans+^0^++++) <img src="https://github.com/user-attachments/assets/9f742659-0f6d-4237-b41f-37c6a5e2be31" height=50 weight=150> <br /> 
 # welcome 2 my page :3
 
 <img src="https://github.com/user-attachments/assets/277ec1df-c198-47dc-bb80-8289e0b08814"> <br /> 
