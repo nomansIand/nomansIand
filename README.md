@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sednoseterces&color=FFD35A&style=for-the-badge&label=hi++++) <img src="https://github.com/user-attachments/assets/9f742659-0f6d-4237-b41f-37c6a5e2be31" height=50 weight=150> <br /> 
+![](https://komarev.com/ghpvc/?username=sednoseterces&color=ff69b4&style=plastic&label=++++🍫🍬🍭🧁🎂🍰🍨++++) <br /> 
 # welcome 2 my page :3
 <div align="center">
 <img src="https://github.com/user-attachments/assets/dd9f9d3d-4082-4142-b61a-f7f8d4c214ef"> <br /> 
