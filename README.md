@@ -12,7 +12,8 @@
   
  [my retrospring](https://retrospring.net/@applepox) 𔓕 [pronouns](https://pronouns.cc/@yesmylord) 𔓕 [rentry (wip)](https://rentry.co/applepox) <br />
  not making this aesthetic, i love a little chaos <br />
- <img src="https://github.com/user-attachments/assets/87100a7f-e3b3-4b8d-8a74-ca3a96bc916b" height=50 width=50>
+ <img src="https://github.com/user-attachments/assets/0de94148-f90c-4935-ad8e-0ba720fbbb89">
+
 </div>
 
 #
