@@ -1,5 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=sednoseterces&color=ff69b4&style=plastic&label=++++🍫🍬🍭🧁🎂🍰🍨++++) <br /> 
-# welcome 2 my page :3
+# welcome 2 my page :3 <img src="https://github.com/user-attachments/assets/d9d070b8-efa8-4ee0-b3d4-d66ee579ae86" height=90 width=90>
+
 <div align="center">
 <img src="https://github.com/user-attachments/assets/dd9f9d3d-4082-4142-b61a-f7f8d4c214ef"> <br /> 
 </div>
