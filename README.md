@@ -1,5 +1,5 @@
 <div align="center">
- <img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109"><img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109">
+ <img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109"><img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109"> <br /> <br />
 </div>
 
 ![](https://komarev.com/ghpvc/?username=sednoseterces&color=ff69b4&style=plastic&label=++++🍫🍬🍭🧁🎂🍰🍨++++) <br /> 
