@@ -1,4 +1,4 @@
-<img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109" height=10 width=500><img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109" height=10 width=500>
+<img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109"><img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109">
 
 ![](https://komarev.com/ghpvc/?username=sednoseterces&color=ff69b4&style=plastic&label=++++🍫🍬🍭🧁🎂🍰🍨++++) <br /> 
 # welcome 2 my page :3 <img src="https://github.com/user-attachments/assets/d9d070b8-efa8-4ee0-b3d4-d66ee579ae86" height=90 width=90>
