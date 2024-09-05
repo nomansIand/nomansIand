@@ -14,10 +14,8 @@
  [my retrospring](https://retrospring.net/@applepox) 𔓕 [pronouns](https://pronouns.cc/@yesmylord) 𔓕 [rentry (one day..)](https://rentry.co/applepox) <br />
  not making this aesthetic, i love a little chaos <br />
  <img src="https://github.com/user-attachments/assets/0de94148-f90c-4935-ad8e-0ba720fbbb89">
-
+# <sub> I SETTLE FOR A GHOST I NEVER KNEW </sub> <br /> <sub> SUPER PARADISE I HELD ON TO </sub>
 </div>
-
-#
 <div align="center">
  <img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109"><img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109"> <br /> <br />
 <img src="https://github.com/user-attachments/assets/a385409d-fc76-4d0f-b259-c27acc62a7a2" height=400 width=500> <br />
