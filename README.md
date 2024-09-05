@@ -3,7 +3,7 @@
 </div>
 
 ![](https://komarev.com/ghpvc/?username=sednoseterces&color=ff69b4&style=plastic&label=++++🍫🍬🍭🧁🎂🍰🍨++++) <br /> 
-# welcome 2 my page :3 <img src="https://github.com/user-attachments/assets/e7c929c1-2c8e-4899-91f6-381ce4be7273" height=120 width=120><img src=https://github.com/user-attachments/assets/4d0f055c-fbb6-40e5-8447-0cd52ce8ccf1 height=90 width=120>
+# ``welcome 2 my page :3`` <img src="https://github.com/user-attachments/assets/e7c929c1-2c8e-4899-91f6-381ce4be7273" height=120 width=120><img src=https://github.com/user-attachments/assets/4d0f055c-fbb6-40e5-8447-0cd52ce8ccf1 height=90 width=120>
 
 
 <div align="center">
