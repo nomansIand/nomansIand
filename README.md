@@ -18,6 +18,6 @@
 </div>
 <div align="center">
  <img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109"><img src="https://github.com/user-attachments/assets/64cb5226-cdd4-41d2-9059-230469155109"> <br /> <br />
-<img src="https://github.com/user-attachments/assets/c765e2ea-ae03-4d4a-bd79-07b1cea59a11"> <br />
+<img src="https://github.com/user-attachments/assets/11a57703-20a6-4009-90e5-27502d1af8a0"> <br />
 </div>
 
