@@ -11,7 +11,7 @@
 </div>
 <div align="center">
   
- [my retrospring](https://retrospring.net/@applepox) 𔓕 [pronouns](https://pronouns.cc/@yesmylord) 𔓕 [rentry (one day..)](https://rentry.co/applepox) <br />
+ [my retrospring](https://retrospring.net/@applepox) <img src="https://github.com/user-attachments/assets/8fd84c19-2679-49f4-a649-c2d680d22913"> [pronouns](https://pronouns.cc/@yesmylord) <img src="https://github.com/user-attachments/assets/4879475c-9927-4839-b26c-607702a79084"> [rentry (one day..)](https://rentry.co/applepox) <br />
  not making this aesthetic, i love a little chaos <br />
  <img src="https://github.com/user-attachments/assets/0de94148-f90c-4935-ad8e-0ba720fbbb89">
 # <sub> I SETTLE FOR A GHOST I NEVER KNEW </sub> <br /> <sub> SUPER PARADISE I HELD ON TO </sub>
