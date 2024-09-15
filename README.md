@@ -5,6 +5,8 @@
 </div>
 <div align="center">
   
+ <img src="https://github.com/user-attachments/assets/25e7c20a-4af3-4e8b-b771-8dc4fe2eb56b" height=50 weight=50> educate yourself ➩ [<img src="https://github.com/user-attachments/assets/97472a94-d48f-4ae8-8b7a-a2508d8456e6" height=30 weight=30>](https://define-proship.carrd.co/) <br />
+ 
  [retrospring](https://retrospring.net/@applepox) <img src="https://github.com/user-attachments/assets/4f895e5f-543e-4283-ad89-3778eedaec18" height=25 weight=25> [pronouns](https://pronouns.cc/@yesmylord) <img src="https://github.com/user-attachments/assets/dc6f5cb4-7a1b-4fb9-9325-488fcdff20bb" height=25 weight=25> [rentry (wip)](https://rentry.co/applepox) <br />
  mostly off-tab, $\color{#809caa}{𝐰𝐡𝐢𝐬𝐩𝐞𝐫}$ $\color{#828b98}{𝟐}$ $\color{#7b4452}{𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭}$. <br />
 <img src="https://github.com/user-attachments/assets/64e46a18-c6be-404c-9898-94f996ce73e4"> <br />
