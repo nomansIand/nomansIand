@@ -5,7 +5,7 @@
 </div>
 <div align="center">
   
- [retrospring](https://retrospring.net/@applepox) <img src="https://github.com/user-attachments/assets/4f895e5f-543e-4283-ad89-3778eedaec18" height=20 weight=20> [pronouns](https://pronouns.cc/@yesmylord) <img src="https://github.com/user-attachments/assets/dc6f5cb4-7a1b-4fb9-9325-488fcdff20bb" height=25 weight=25> [rentry (wip)](https://rentry.co/applepox) <br />
+ [retrospring](https://retrospring.net/@applepox) <img src="https://github.com/user-attachments/assets/4f895e5f-543e-4283-ad89-3778eedaec18" height=25 weight=25> [pronouns](https://pronouns.cc/@yesmylord) <img src="https://github.com/user-attachments/assets/dc6f5cb4-7a1b-4fb9-9325-488fcdff20bb" height=25 weight=25> [rentry (wip)](https://rentry.co/applepox) <br />
  mostly off-tab, **whisper 2 interact** <br />
 <img src="https://github.com/user-attachments/assets/64e46a18-c6be-404c-9898-94f996ce73e4"> <br />
 #
