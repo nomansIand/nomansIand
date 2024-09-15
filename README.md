@@ -6,7 +6,7 @@
 <div align="center">
   
  [retrospring](https://retrospring.net/@applepox) <img src="https://github.com/user-attachments/assets/4f895e5f-543e-4283-ad89-3778eedaec18" height=25 weight=25> [pronouns](https://pronouns.cc/@yesmylord) <img src="https://github.com/user-attachments/assets/dc6f5cb4-7a1b-4fb9-9325-488fcdff20bb" height=25 weight=25> [rentry (wip)](https://rentry.co/applepox) <br />
- mostly off-tab, $\color{#ff0000}{𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝟐 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭}$. <br />
+ mostly off-tab, $\color{#ff0000}{𝐰𝐡𝐢𝐬𝐩𝐞𝐫 ‎ 𝟐 ‎ 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭}$. <br />
 <img src="https://github.com/user-attachments/assets/64e46a18-c6be-404c-9898-94f996ce73e4"> <br />
 #
 <img src="https://github.com/user-attachments/assets/9fd5e342-6d37-463c-b948-50a5f767f60d" height=300 weight=300><img src="https://github.com/user-attachments/assets/b57cbd9e-a6f8-4896-8798-42c889a33531" height=300 weight=300>
