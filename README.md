@@ -1,4 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=sednoseterces&color=B3CEE5&style=plastic&label=++++hi❤️++++) <img src="https://github.com/user-attachments/assets/88806ec4-bf2a-4f65-9e41-97cc0ef31151"> <br /> 
+> [!CAUTION]
+> 🔞 this is a **PROSHIP** / __PROFIC__ blog. MINORS DO **NOT** interact. all my stuff is strictly **FICTIONAL**.
 # <sub>``🐙 – welcome 2 my page.``</sub> <img src="https://github.com/user-attachments/assets/aab5fd52-35fe-42e8-8399-df7d237f85ff" height=120 width=150>
 <div align="center">
 <img src="https://github.com/user-attachments/assets/ed3fd607-c6dc-48f7-9223-6010e63a1b42" height=450 weight=750> <br /> <br />
@@ -15,3 +17,6 @@
 <img src="https://github.com/user-attachments/assets/9fd5e342-6d37-463c-b948-50a5f767f60d" height=300 weight=300><img src="https://github.com/user-attachments/assets/b57cbd9e-a6f8-4896-8798-42c889a33531" height=300 weight=300> <br />
 <img src="https://github.com/user-attachments/assets/03f4c5f4-24ff-4357-b685-8a70dc42fabd" height=700 weight=600>
 </div>
+
+> [!NOTE]
+> p.s don't claim to be "anti-harassment" & ill-treat people with different views in fiction. that's as petty as it's hypocritical!
