@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=sednoseterces&color=B3CEE5&style=plastic&label=++++hi❤️++++) <img src="https://github.com/user-attachments/assets/88806ec4-bf2a-4f65-9e41-97cc0ef31151"> <br /> 
 > [!CAUTION]
-> 🔞 this is a **PROSHIP** / __PROFIC__ blog. MINORS DO **NOT** interact. all my stuff is strictly **FICTIONAL**.
+> 🔞 this is a **PROSHIP** / __PROFIC__ blog. MINORS DO **NOT** interact. all my stuff is strictly **FICTIONAL**. <img src="https://github.com/user-attachments/assets/9735112d-fea6-4f1c-94d6-093a25c89fba" height=50 weight=50>
 # <sub>``🐙 – welcome 2 my page.``</sub> <img src="https://github.com/user-attachments/assets/aab5fd52-35fe-42e8-8399-df7d237f85ff" height=120 width=150>
 <div align="center">
 <img src="https://github.com/user-attachments/assets/ed3fd607-c6dc-48f7-9223-6010e63a1b42" height=450 weight=750> <br /> <br />
