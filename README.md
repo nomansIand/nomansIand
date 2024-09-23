@@ -6,7 +6,7 @@
 <img src="https://github.com/user-attachments/assets/ed3fd607-c6dc-48f7-9223-6010e63a1b42" height=450 weight=750> <br /> <br />
 </div>
 <div align="center">
- <img src="https://github.com/user-attachments/assets/19818bf5-ca6a-4f09-9edc-cc911a6be8fa" height=75 weight=100> <br /> 
+ <img src="https://github.com/user-attachments/assets/16a852d3-9291-4be3-b1ec-0ef561257954" height=90 weight=150> <br /> 
   
  <img src="https://github.com/user-attachments/assets/25e7c20a-4af3-4e8b-b771-8dc4fe2eb56b" height=40 weight=40> educate yourself ➩ [<img src="https://github.com/user-attachments/assets/b6f6fad7-470d-4f5e-9eb9-19179608a613" height=35 weight=35>](https://define-proship.carrd.co/) <br />
  
