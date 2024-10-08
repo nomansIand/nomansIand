@@ -4,7 +4,7 @@
 > 🔞 this is a **PROSHIP** / __PROFIC__ blog. MINORS DO **NOT** interact. all my stuff is strictly **FICTIONAL**. <img src="https://github.com/user-attachments/assets/9735112d-fea6-4f1c-94d6-093a25c89fba" height=50 weight=50>
 # <sub>``🐙 – welcome 2 my page.``</sub> <img src="https://github.com/user-attachments/assets/aab5fd52-35fe-42e8-8399-df7d237f85ff" height=120 width=150>
 <div align="center">
-<img src="https://github.com/user-attachments/assets/ed3fd607-c6dc-48f7-9223-6010e63a1b42" height=450 weight=750> <br /> <br />
+<img src="https://github.com/user-attachments/assets/08a3c142-d2ba-43ff-b692-69fc2f8d50b2" height=450 weight=750> <br /> <br />
 </div>
 <div align="center">
  <img src="https://github.com/user-attachments/assets/16a852d3-9291-4be3-b1ec-0ef561257954" height=90 weight=150> <br /> 
