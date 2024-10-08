@@ -2,7 +2,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=lmhdm5zmfci92vqr7qzgjl0u7&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=ff0000&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=lmhdm5zmfci92vqr7qzgjl0u7&redirect=true) [![GitHub Streak](https://streak-stats.demolab.com?user=nomansIand&hide_border=true&mode=weekly&card_width=10&card_height=10&ring=A22C2354&sideNums=809CAA&currStreakLabel=82505C&sideLabels=747C88&dates=7B4452&stroke=818A9A&background=FEFEFF00&hide_current_streak=true&hide_longest_streak=true)](https://git.io/streak-stats) <br />
 > [!CAUTION]
 > 🔞 this is a **PROSHIP** / __PROFIC__ blog. MINORS DO **NOT** interact. all my stuff is strictly **FICTIONAL**. <img src="https://github.com/user-attachments/assets/9735112d-fea6-4f1c-94d6-093a25c89fba" height=50 weight=50>
-# <sub>``🐙 – welcome 2 my page.``</sub> <img src="https://github.com/user-attachments/assets/aab5fd52-35fe-42e8-8399-df7d237f85ff" height=120 width=150>
+# <sub>``🐙 – welcome 2 my page.``</sub> <img src="https://github.com/user-attachments/assets/aab5fd52-35fe-42e8-8399-df7d237f85ff" height=120 width=150> <br /> <br />
 <div align="center">
 <img src="https://github.com/user-attachments/assets/08a3c142-d2ba-43ff-b692-69fc2f8d50b2" height=450 weight=750> <br /> <br />
 </div>
