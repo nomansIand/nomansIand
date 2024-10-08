@@ -4,7 +4,7 @@
 > 🔞 this is a **PROSHIP** / __PROFIC__ blog. MINORS DO **NOT** interact. all my stuff is strictly **FICTIONAL**. <img src="https://github.com/user-attachments/assets/9735112d-fea6-4f1c-94d6-093a25c89fba" height=50 weight=50>
 # <sub>``🐙 – welcome 2 my page.``</sub> <img src="https://github.com/user-attachments/assets/aab5fd52-35fe-42e8-8399-df7d237f85ff" height=120 width=150> <br /> <br />
 <div align="center">
-<img src="https://github.com/user-attachments/assets/08a3c142-d2ba-43ff-b692-69fc2f8d50b2" height=450 weight=750> <br /> <br />
+<img src="https://github.com/user-attachments/assets/c144446d-59e4-4138-b333-c6f7b2e5428d" height=450 weight=750> <br /> <br />
 </div>
 <div align="center">
  <img src="https://github.com/user-attachments/assets/16a852d3-9291-4be3-b1ec-0ef561257954" height=90 weight=150> <br /> 
@@ -20,4 +20,4 @@
 </div>
 
 > [!NOTE]
-> p.s don't claim to be "anti-harassment" & ill-treat people with different views in fiction. that's as petty as it's hypocritical!
+> p.s don't claim to be "anti-harassment" & ill-treat people with different views in fiction. that's as petty as it's hypocritical! <img src="https://github.com/user-attachments/assets/9786f6f7-a185-4b2a-92f7-f6c0335bd52a" height=50 weight=50>
