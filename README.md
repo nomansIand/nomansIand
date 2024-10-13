@@ -20,3 +20,6 @@
 
 > [!NOTE]
 > p.s don't claim to be "anti-harassment" & ill-treat people with different views in fiction. that's as petty as it's hypocritical! <img src="https://github.com/user-attachments/assets/9786f6f7-a185-4b2a-92f7-f6c0335bd52a" height=50 weight=50>
+
+[![‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎📡 ciel profile views](https://u8views.com/api/v1/github/profiles/71658981/views/day-week-month-total-count.svg)](https://u8views.com/github/nomansIand) <br /> 
+<img src="https://github.com/user-attachments/assets/d69f6e9c-eafc-4642-9fad-3ecad89b5463">
