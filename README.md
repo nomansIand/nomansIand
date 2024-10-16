@@ -11,7 +11,7 @@
 <div align="center">
 
  <img src="https://github.com/user-attachments/assets/9fd5e342-6d37-463c-b948-50a5f767f60d" height=200 weight=200>[retrospring](https://retrospring.net/@A_90) <img src="https://github.com/user-attachments/assets/4f895e5f-543e-4283-ad89-3778eedaec18" height=30 weight=30> [pronouns](https://pronouns.cc/@yesmylord) <img src="https://github.com/user-attachments/assets/dc6f5cb4-7a1b-4fb9-9325-488fcdff20bb" height=30 weight=30> [rentry](https://rentry.co/applepox)<img src="https://github.com/user-attachments/assets/b57cbd9e-a6f8-4896-8798-42c889a33531" height=200 weight=200> <br />
- <sub> mostly off-tab/in menu </sub>, $\color{#809caa}{𝐰𝐡𝐢𝐬𝐩𝐞𝐫}$ $\color{#828b98}{𝟐}$ $\color{#7b4452}{𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭}$. <br />
+ <sub> mostly off-tab/in menu, </sub> $\color{#809caa}{𝐰𝐡𝐢𝐬𝐩𝐞𝐫}$ $\color{#828b98}{𝟐}$ $\color{#7b4452}{𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭}$<sub> . </sub> <br />
 <img src="https://github.com/user-attachments/assets/64e46a18-c6be-404c-9898-94f996ce73e4"><img src="https://github.com/user-attachments/assets/75da8761-f2ac-41b7-98d1-b1bcbbf2fc32"><img src="https://github.com/user-attachments/assets/5255cc11-dcce-4952-b57a-96ff8a07eadd"><img src="https://github.com/user-attachments/assets/7498fe6e-5792-406e-988d-4a6a0d2a5cf3"> <br />
 </div>
 
