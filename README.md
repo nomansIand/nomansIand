@@ -1,5 +1,5 @@
 <br /> <br /> <br />
-# about-me
+# [![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&size=36&letterSpacing=4px&pause=100&color=009B7C&background=FF000000&width=435&lines=about-me+%5E_%5E)](https://git.io/typing-svg)
 <div align="center">
 <br /> <br />
 <img src="https://github.com/user-attachments/assets/060cc4fd-95bd-4d70-801f-22155bbb1a70" height=450 weight=750> <br /> <br />
