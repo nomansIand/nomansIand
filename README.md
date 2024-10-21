@@ -6,7 +6,7 @@
 </div>
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&letterSpacing=4px&pause=100&color=00736F&background=FF000000&center=true&repeat=true&random=false&width=435&height=20&lines=...+.+-...+.-+-.-.+..+.+.-..)](https://git.io/typing-svg) <br />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Silkscreen&size=10&letterSpacing=4px&pause=100&color=00736F&background=FF000000&center=true&random=true&width=435&height=20&lines=...+.+-...+.-+-.-.+..+.+.-..)](https://git.io/typing-svg) <br />
 <img src="https://github.com/user-attachments/assets/c4b8deba-7bcd-4321-b402-1b0ba9b6e1c6" height=30 weight=30> [retrospring](https://retrospring.net/@A_90)‎ ‎ ‎ ‎ ✦‎ ‎ ‎ ‎ [pronouns](https://pronouns.cc/@yesmylord) <img src="https://github.com/user-attachments/assets/81e043fb-a55b-4baf-9e0f-de104cb5ab83" height=27 weight=30> <br />
 i'm lazy. $\color{#9bbfb8}{𝗛𝗜𝗔𝗧𝗨𝗦}$» college (^_-)〜 $\color{#ff9cc8}{☆}$ <br /> <br />
 <img src="https://github.com/user-attachments/assets/4ac1eaab-95df-4af1-aeff-59fcbec615f7"> <br /> <br /> <br />
